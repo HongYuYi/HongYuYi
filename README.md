@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @HongYuYi
+- 👀 I’m interested in Sports, Anime, TV Shows & Movies
+- 🌱 I’m currently completing a Bachelor of Business and IT at Monash University
+- 💞️ I’m looking to collaborate on <anything & everything>
+- 📫 How to reach me <insert email & phone>
