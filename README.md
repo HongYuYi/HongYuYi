@@ -4,7 +4,7 @@ Hello! 👋 I'm Hong Yu, a passionate graduate based in Melbourne. Welcome to my
 
 ## Portfolio
 
-To see my portfolio click [here](https://hong-portfolio.onrender.com/)
+To see my portfolio click [here!](https://hong-portfolio.onrender.com/)
 
 ## Quick Overview
 
